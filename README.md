@@ -1,4 +1,4 @@
 # The-Beginning
 Learning >>
 <br>
-Author - Inferno Shrestha
+Author - Inferno (Stha)
